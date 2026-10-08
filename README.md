@@ -1,0 +1,2 @@
+# premium-star-quilt-001-lone-star-quilt-diamond-set
+Stop wrestling with the math and layout of your Lone Star quilt — this Notion hub turns diamond sets from a headache into a seamless, step-by-step plan.  The Lone Star pattern’s intricate diamond sets often lead to fabric waste and confusion. This template centralizes your fabric inventory, cutting calculations, and progress tracking, so you can fo
